@@ -1,16 +1,18 @@
-## Hi there 👋
+<div align="center">  
 
-<!--
-**komasandayu/komasandayu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![](https://file.garden/ZykaNJjJbymhWUBX/top)
 
-Here are some ideas to get you started:
+Hello!⠀My⠀name⠀is⠀**Mika**⠀or⠀**Markus**⠀though⠀I⠀respond⠀to
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+just⠀about⠀anything⠀these⠀days.⠀I⠀am⠀*agender*⠀and⠀*bisexual*
+
+with⠀a⠀lovely⠀husband⠀...⠀He⠀is⠀my⠀absolute⠀**EVERYTHING**.
+
+
+**Mob⠀Psycho⠀100**⠀&⠀**Yuri!!⠀On⠀Ice**⠀are⠀my⠀special⠀interests.
+
+Nu⠀Metal,⠀FnAF,⠀OMORI,⠀and⠀Yokai⠀Watch⠀are⠀my⠀hyperfixs.
+
+![](https://file.garden/ZykaNJjJbymhWUBX/bottom)
+
+![](https://komarev.com/ghpvc/?username=komasandayu&label=(ᵔ⩊ᵔ)&style=plastic&color=3182C3)  
