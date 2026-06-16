@@ -20,3 +20,7 @@ Nu⠀Metal,⠀FnAF,⠀OMORI,⠀and⠀Yokai⠀Watch⠀are⠀my⠀hyperfixs.
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314ruwkk2l4aebakn6xstqopuu4q&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+
+
+Leave a message on my [Atabook](https://togami.atabook.org/) if you see me hanging around !
