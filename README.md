@@ -4,7 +4,7 @@
 
 Hello!⠀My⠀name⠀is⠀**Mika**⠀or⠀**Markus**⠀though⠀I⠀respond⠀to
 
-just⠀about⠀anything⠀these⠀days.⠀I⠀am⠀*demigirl*⠀and⠀*bisexual*
+just⠀about⠀anything⠀these⠀days.⠀I⠀am⠀*demigirl*⠀and⠀*straight*
 
 with⠀a⠀lovely⠀husband⠀...⠀He⠀is⠀my⠀absolute⠀**EVERYTHING**.
 
